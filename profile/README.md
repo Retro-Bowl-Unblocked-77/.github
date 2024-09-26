@@ -1,4 +1,4 @@
-## Retro Bowl Unblocked 77: Your Gateway to Nostalgic Football Fun
+## Retro Bowl Unblocked 77 - Get Started Today
 
 Retro Bowl Unblocked 77 offers a thrilling football experience that combines nostalgia with engaging gameplay. Step into the shoes of a team coach, managing player recruitment, crafting strategies, and leading your team to victory.
 
